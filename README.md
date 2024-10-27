@@ -8,7 +8,7 @@
 
 **<h3 align="left">Rapid Fire</h3>**
 
-- 🌱 I'm currently learning: **Anything... Everything**
+- 🌱 I'm currently learning: **Anything. ...Everything**
 - ⚡ Fun fact: **My favourite reads are Beserk and RedRising**
 
  **<h3 align="left">Skills</h3>**
