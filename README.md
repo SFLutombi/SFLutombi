@@ -9,7 +9,7 @@
 **<h3 align="left">Rapid Fire</h3>**
 
 - 🌱 I'm currently learning: **Anything ...Everything**
-- ⚡ Fun fact: **I'm an author... well I've half-written and posed few dozen webnovels.**
+- ⚡ Fun fact: **I'm an author... well I've half-written and posted few dozen webnovels.**
 
  **<h3 align="left">Skills</h3>**
 
